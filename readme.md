@@ -1,4 +1,4 @@
-# [Change to your name]
+# [Brittany Branch]
 
 ## About Me
-Put a brief bio here about you. Use a few **bold** and _italic_ words and maybe a [link or two](http://www.google.com).
+My name is Brittany Branch and I am in my final semester in the **Learning Design and Technology** Graduate program at NCSU. I am in my first year as the **Digital Learning Coach** for [Mount Airy City Schools](https://www.mtairy.k12.nc.us/) after teaching middle and high school science for 10 years. I live in [Dobson, NC](https://earth.google.com/web/search/Dobson,+NC/@36.3905865,-80.71902605,370.89997146a,9356.82161751d,35y,0h,45t,0r/data=CnUaSxJFCiUweDg4NTIyOWM5ZGI4ZTFmMTE6MHg0MjM2NjNlMjQzMjIyNzUxGRzxv_ClMkJAIc6KqIk-LlTAKgpEb2Jzb24sIE5DGAIgASImCiQJp9HhI5Y2QkARK8VrDMI1QkAZaeVHeQUtVMAhGw-Lo-wtVMAoAg) with my husband and our three children on our family farm where we raise dairy heifers. Free time is rare around here so I am grateful that the things that keep me busy, like our animals, kids, land and my job and grad school, bring me so much joy. On the occasion I do get free time I really enjoy reading, gardening and cooking. I use much of my reading time to read books for our rural area's race and equity community book study which is something that makes me very proud to live and work here. 
